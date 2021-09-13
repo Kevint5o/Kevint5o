@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on certain projects that can help solve all kinds of problems
 - 📫 How to reach me:
 - Mail: kevintieman@outlook.com
-- Discord: Kevon#8848
+- Discord: Kevon#8848 
